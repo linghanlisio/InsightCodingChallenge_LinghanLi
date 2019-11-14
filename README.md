@@ -1,0 +1,1 @@
+# InsightCodingChallenge_LinghanLi
